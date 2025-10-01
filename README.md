@@ -101,7 +101,7 @@ ________________________________________
 
 Feel free to connect, collaborate, or just say hello.
 
-💌 Email: **iheanachochinedu@gmail.com**
+💌 Email: **iheanachoemma1@gmail.com**
 
 👥 LinkedIn: **www.linkedin.com/in/emmanuel-iheanacho**
 
