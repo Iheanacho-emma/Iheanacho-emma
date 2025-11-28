@@ -1,7 +1,10 @@
 **👋 Hi, I'm Iheanacho Emmanuel Chinedu!**
 
 
- `` **![suit pics](https://github.com/user-attachments/assets/ce4ebe76-c6e6-4e9e-88a1-70c728ef9e7a)**
+   `` **![slazzer-preview-x3szr-removebg-preview](https://github.com/user-attachments/assets/da99a8c7-69a0-4c43-8cc8-f5eadce7c4ea)**
+
+
+
 
 
 **🌐 Data Analyst | 📊 Excel & Power BI Specialist | 🔍 SQL Data Analyst | 📊 Data Visualization Specialist | ✍️ Tech Blogger**
